@@ -1,5 +1,5 @@
 # lab1git
 Stephen Garcia
 
-HAHAAHA
+HAHAAHAHAHAHA
 I am now on task 3.
